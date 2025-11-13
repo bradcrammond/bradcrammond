@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @bradcrammond
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning as much as possible
 - 💞️ I’m looking to collaborate on not that much really
 - 📫 How to reach me: if you don't already know, you probably shouldn't
 
